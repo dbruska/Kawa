@@ -7,7 +7,7 @@ Poranna filiżnka kawy podnosi poziom serotonimy, czyli hormonu szczęścia. Dzi
 
 Doskonae mocne espresso jest podstawą dla innych sposobów podawania kawy. Na jego bazie przygotujemy klasyczną kawę z mlekiem, pyszne latte - z dużej ilości spienionego mleka i małego espresso, cappuccino z mleczna pianką. Albo affogato - z kulką lodów zatopionych w gorącej kawie. W lecie znakomicie smakują chłodne i mrożone napoje kawowe, np. espresso sorbettto - kawa wymieszana w szejkerze z dodatkiem lodów, zimnych owoców lub syropów smakowych. 
 
-http://kawanajutro.com/userfiles/latte_art_kawa_ziarnista_sklep.jpg
+[http://kawanajutro.com/userfiles/latte_art_kawa_ziarnista_sklep.jpg]
 
 ##Kawa z czekoladą i pianką.
 
