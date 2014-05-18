@@ -5,10 +5,9 @@ Przyspiesza akcję serca, na krótko podnosi ciśnienie krwi, odgania senność,
 
 Poranna filiżnka kawy podnosi poziom serotonimy, czyli hormonu szczęścia. Dzięki temu pomaga wstać z łóżka i dobrze zacząć dzień.
 
-Doskonae mocne espresso jest podstawą dla innych sposobów podawania kawy. Na jego bazie przygotujemy klasyczną kawę z mlekiem, pyszne latte - z dużej ilości spienionego mleka i małego espresso, cappuccino z mleczna pianką. Albo affogato - z kulką lodów zatopionych w gorącej kawie. W lecie znakomicie smakują chłodne i mrożone napoje kawowe, np. espresso sorbettto - kawa wymieszana w szejkerze z dodatkiem lodów, zimnych owoców lub syropów smakowych. 
+Doskonae mocne espresso jest podstawą dla innych sposobów podawania kawy. Na jego bazie przygotujemy klasyczną kawę z mlekiem, pyszne latte - z dużej ilości spienionego mleka i małego espresso, cappuccino z mleczna pianką. Albo affogato - z kulką lodów zatopionych w gorącej kawie. W lecie znakomicie smakują chłodne i mrożone napoje kawowe, np. espresso sorbettto - kawa wymieszana w szejkerze z dodatkiem lodów, zimnych owoców lub syropów smakowych
 
-[(http://kawanajutro.com/userfiles/latte_art_kawa_ziarnista_sklep.jpg)]
-
+[https://www.google.pl/search?hl=pl&site=imghp&tbm=isch&source=hp&biw=1366&bih=665&q=kawa&oq=kawa&gs_l=img.3..0l10.1835.3066.0.5854.4.3.0.0.0.0.510.946.0j1j1j5-1.3.0....0...1ac.1.43.img..2.2.426.4IWkZwbVGIs#imgdii=_]
 ##Kawa z czekoladą i pianką.
 
 Na dno szklanek za pomocą długiej łyżki, wlej syrop czekoladowy - gotowy lub zrobiony z połówki tabliczki czekolady rozpuszczonej w odbrobinie mleka. Mleko trochę podgrzej i spień. Powoli wlej na warstwę syropu. Zaparz dwie filiżanki kawy espresso,kawę wlewaj na syrop powoli, przy ściance szklanki, najlepiej z dzbanuszka z dziubkiem, by nie naruszyć poszczególnych warstw. 
