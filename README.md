@@ -9,7 +9,7 @@ Doskonae mocne espresso jest podstawą dla innych sposobów podawania kawy. Na j
 
 
 
-http://4.bp.blogspot.com/_yXKXzBm-TJc/TTNimOLMuXI/AAAAAAAAA_8/35LGjsz_R70/s320/latte1.jpg
+(http://4.bp.blogspot.com/_yXKXzBm-TJc/TTNimOLMuXI/AAAAAAAAA_8/35LGjsz_R70/s320/latte1.jpg)
 ##Kawa z czekoladą i pianką.
 
 Na dno szklanek za pomocą długiej łyżki, wlej syrop czekoladowy - gotowy lub zrobiony z połówki tabliczki czekolady rozpuszczonej w odbrobinie mleka. Mleko trochę podgrzej i spień. Powoli wlej na warstwę syropu. Zaparz dwie filiżanki kawy espresso,kawę wlewaj na syrop powoli, przy ściance szklanki, najlepiej z dzbanuszka z dziubkiem, by nie naruszyć poszczególnych warstw. 
