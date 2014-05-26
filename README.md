@@ -18,6 +18,8 @@ Na dno szklanek za pomocą długiej łyżki, wlej syrop czekoladowy - gotowy lub
 
 Zaparz dwie filiżanki kawy, dodaj cynamon, posłódź do smaku i odstaw, aby kawa wystygła.Lekko spień mleko, wlej go do kawy i wymieszaj. Wstaw do lodówki na 30 minut. Przed podaniem dodaj kostki lodu, bitą śmietanę, wiórki czekoladowe i gotowe. 
 
+![](http://get.studio.wp.pl/?s=vhs&n=58011461&f=-users-3858-1264c5eae24.jpg)
+
 ## Kawa faryzeusz
 
 Podgrzej rum z cukrem, nie gotuj. Zaparz dwie filiżanki kawy espresso. Do wysokich szklanek wlej posłodzony rum, następnie po filiznce kawy. Do każdej szklanki długą łyżeczką włóż po porcji gęstej śmietany i delikatnie zamieszaj, aby powstał wzorek. Na wierzchu połóż po dwie łyżki bitej smietany, posyp wiórkami czekolady.  
